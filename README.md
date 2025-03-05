@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @misioskyyy
 - 👀 I’m interested in drowing/fishing
-- 🌱 I’m currently learning cyber security
+- 🌱 I’m currently learning cyber security/AI
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: He/Him
